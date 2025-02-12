@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Sherlock22gnoma
+- 👋 Hi, I’m @Sherlockzukk
 - 👀 I’m interested in web 3 and cryptocurrency
 - 🌱 I’m currently learning web 3 and AI
 - 💞️ I’m looking to collaborate on telegram @Sherlockzuk
